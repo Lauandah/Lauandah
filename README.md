@@ -1,4 +1,4 @@
-- Olá, me chamo Yulliane Lauandah mas você pode me chamar de Lauh!
+- Olá, me chamo Yulliane Lauandah mas você pode me chamar pelo meu nome artístico, Artia!
 - Sou natural de Recife - PE
 - Tenho 19 anos e me identifico como Travesti
 - Estudo informática para internet no IFPE - Campus Jaboatão e estou interessada em compartilhar minha tragetória na programação e desenvolver novas habilidades, além de me integrar na comunidade.
